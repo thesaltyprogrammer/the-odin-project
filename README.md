@@ -7,7 +7,7 @@ and building with intention and heart.
 A quote I heard recently stayed with me:  
 
 > *دوام الحال من المحال*  
-> *Nothing lasts forever.*
+> *Nothing lasts forever*
 
 It’s a reminder that change is certain,  
 but so is new beginnings.  
