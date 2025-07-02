@@ -1,4 +1,4 @@
-# ✨ Summer 2025 — A Season of Growth
+# ✨ Summer 2025 — A Season of Growth ✨
 
 This summer, I’m embracing growth —  
 refining my skills, diving deep into learning,  
